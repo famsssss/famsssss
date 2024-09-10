@@ -6,7 +6,8 @@ Reading makes a full man; speaking a ready man; writing an exact man - Francis B
   
 - 💞️ I’m looking to collaborate on startup ideations, google cloud projects for now..
   
-- 📫 How to reach me : linktr.ee/am05sg ; linkedin.com/in/am05sg-lau
+- 📫 How to reach me : amosliusg@gmail.com
+  Personal link: linktr.ee/am05sg 
   
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I identify myself as a sigma male with rizz hahaha
