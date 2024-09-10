@@ -5,9 +5,9 @@ Reading makes a full man; speaking a ready man; writing an exact man - Francis B
 - 🌱 I’m currently learning about AI, finance and marketing on LinkedIn Learning & Google Cloud
   
 - 💞️ I’m looking to collaborate on startup ideations, google cloud projects for now..
-- 
+  
 - 📫 How to reach me : linktr.ee/am05sg ; linkedin.com/in/am05sg-lau
-- 
+  
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I identify myself as a sigma male with rizz hahaha
 
